@@ -1,3 +1,4 @@
+### Welcome to the sh's github 🍰
 ### 💕 Hi I'm seohyun! 💪 
 ### 2️⃣ I'm English Education Department.
 
