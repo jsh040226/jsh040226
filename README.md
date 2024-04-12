@@ -3,6 +3,9 @@
  + 2️⃣ I'm English Education Department. 
  + 📝 I'm learning Digital Literacy and English Education.
  + 🏡 My hometown is JinJu, so beautiful city!!
+
+
+   
  🐈 🐈‍⬛ 💭 If there is the cutest cat in the world, it would be my lovely cat " DDO DDO! " 😻
 <!--
 **jsh040226/jsh040226** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
