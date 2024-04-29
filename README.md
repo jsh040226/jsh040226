@@ -1,7 +1,9 @@
 ## 🍰 Welcome to the sh's github!! 🍰
  + 💭 Hi My name is seohyun! 💪☺️
- + 2️⃣ I'm English Education Department. 
+ + 2️⃣ I'm English Education Department.
+ + 🌈 My student number is 2023013222
  + 📝 I'm learning Digital Literacy and English Education.
+ + 💯 I really want to be good at PYTHON 👩🏻‍💻
  + 🏡 My hometown is JinJu, so beautiful city!!
 
 
